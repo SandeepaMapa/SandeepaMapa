@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SandeepaMapa
-- 👀 I’m interested in Java & Python
+- 👀 I’m interested in Java and JavaScript
 - 🌱 I’m currently learning in Kotelawala Defence University
 - 💞️ I’m looking forward gain the experience and knowledge of the experts while sharing mine with beginners.
 - 📫 How to reach me- gayansandeepam88@gmail.com 
